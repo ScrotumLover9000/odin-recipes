@@ -1,0 +1,5 @@
+Odin Project Recipes for
+
+CHICKEN BIRYANI
+CHICKEN BURGER
+CHICKEN CURRY
